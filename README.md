@@ -15,4 +15,5 @@ ENG/TAG 🇵🇭
 <p><b><i>DNI:</i></b> Incests enjoyers, AI Art Sellers/Users, NFT users, Racists</p>
 <p><b>Will block you if you made me or my friends uncomfortable if you did not stop after warnings.</b></p>
 <p><b><i>INT:</i></b> Roleplayers(I only do freaky RPs with friends), w2i if I did not respond, Cuddles/Kisses❤️️</p>
-<a href="https://websitemaycry.straw.page">𝖘𝖙𝖗𝖆𝖜𝖕𝖆𝖌𝖊</a>
+
+Checkout my strawpage and atabook ->-
