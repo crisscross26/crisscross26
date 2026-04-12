@@ -17,3 +17,5 @@ ENG/TAG 🇵🇭
 <p><b><i>INT:</i></b> Roleplayers(I only do freaky RPs with friends), w2i if I did not respond, Cuddles/Kisses❤️️</p>
 
 Checkout my strawpage and atabook ->-
+
+<p align="center">𝙰 𝚕𝚊𝚖𝚙 𝚝𝚑𝚊𝚝 𝚠𝚒𝚕𝚕 𝚐𝚞𝚒𝚍𝚎 𝚢𝚘𝚞 𝚝𝚑𝚛𝚘𝚞𝚐𝚑 𝚝𝚑𝚎 𝚍𝚊𝚛𝚔𝚗𝚎𝚜𝚜 𝚊𝚗𝚍 𝚐𝚒𝚟𝚎𝚜 𝚢𝚘𝚞 𝚠𝚊𝚛𝚖𝚝𝚑.</p>
