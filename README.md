@@ -1,5 +1,5 @@
 <div align="center">
-  <img width="500" height="350" src="https://devils-lair.org/images/dmc2dante.jpg"/>
+  <img width="400" height="350" src="https://pbs.twimg.com/media/Gyex5iwWYAAWyDV.jpg"/>
 </div>
 
 ###
